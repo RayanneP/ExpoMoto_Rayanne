@@ -4,4 +4,10 @@
 
 ## Index e Css
 
-https://sesisenaispedu-my.sharepoint.com/:v:/r/personal/rayanne_silva_portalsesisp_org_br/Documents/V%C3%ADdeos/Clipchamp/Projeto%20de%20V%C3%ADdeo%203/Assets/Grava%C3%A7%C3%A3o%20site.mp4?csf=1&web=1&e=J1Pg4R&nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D
+![Captura de tela 2025-02-10 152631](https://github.com/user-attachments/assets/285864a0-49b8-4a57-8a75-ac410be84788)
+![Captura de tela 2025-02-10 152652](https://github.com/user-attachments/assets/a2e9932b-d2ab-4d3a-a9c2-407512cb2093)
+![Captura de tela 2025-02-10 152712](https://github.com/user-attachments/assets/36db5adc-029b-47aa-be74-49eb51ac760d)
+![Captura de tela 2025-02-10 152736](https://github.com/user-attachments/assets/56b02ace-c50c-4b5a-8fa8-969c2c4b969c)
+![Captura de tela 2025-02-10 152753](https://github.com/user-attachments/assets/477b4f2d-8754-4d56-9ff1-51cef5f77c77)
+![Captura de tela 2025-02-10 152810](https://github.com/user-attachments/assets/6e0ab47e-f3fe-4d3b-9648-23f6eb4c71f6)
+![Captura de tela 2025-02-10 152821](https://github.com/user-attachments/assets/68df820a-8067-45e8-bf85-08f75abde1d1)
